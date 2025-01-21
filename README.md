@@ -1,4 +1,4 @@
-hi, i'm miley (but i also go by ethan). i prefer people interacting w/ me rather than judging based on my writing style, cause ik i sound pretty pretentious sometimes. 
+hi, i'm miley (but i also go by ethan)! i prefer people interacting w/ me rather than judging based on my writing style, cause i do my best to match vibes. my writing style does not convey how excitable a person i am *(i do still have an old straw linked if u wanna read that thoug.. sighs dramatically)*
 
 
 dx. severe social anxiety, audhd, and working on bpd.
