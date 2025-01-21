@@ -3,7 +3,7 @@ hi, i'm miley (but i also go by ethan)! i prefer people interacting w/ me rather
 
 dx. severe social & general anxiety, audhd, and working on bpd.
 
-*(and uhm, quick note!! im VERY wary of kinnies/fictionkin. like this isnt an outright dni like i had it before (lord only knows how many more slurs id be sent ouhghh) but like. know that im very very hesitant of interacting w you guys. i dont hate you and i never have, but please dont berate me over my disbelief in the concept,,,, like.. if dont send me slurs or harass me over it? we are genuinely totally fine im just really anxious about interacting)*
+*(and uhm, quick note!! im VERY wary of kinnies/fictionkin. like this isnt an outright dni like i had it before (lord only knows how many more slurs id be sent ouhghh) but like. know that im very very hesitant of interacting w you guys. i dont hate you and i never have, but please dont berate me over my disbelief in the concept,,,, like,, if u dont send me slurs or harass me over it? we are genuinely totally chill im just really anxious about interacting. actually ive even gone out of my way to interact first sometimes because i promise im not scary but uhm lke. know im a quite anxious arounf you)*
 
 
 ..usually in these skinz if you do wanna chat ^^
