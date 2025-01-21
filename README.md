@@ -1,7 +1,7 @@
 hi, i'm miley (but i also go by ethan)! i prefer people interacting w/ me rather than judging based on my writing style, cause i do my best to match vibes. my writing does not convey how excitable a person i am *(i do still have an old straw linked if u wanna read that thoug.. sighs dramatically)*
 
 
-dx. severe social anxiety, audhd, and working on bpd.
+dx. severe social & general anxiety, audhd, and working on bpd.
 
 
 ..usually in these skinz if you do wanna chat ^^
