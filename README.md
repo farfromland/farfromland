@@ -1,4 +1,4 @@
-hi, i'm miley (but i also go by ethan)! i prefer people interacting w/ me rather than judging based on my writing style, cause i do my best to match vibes. my writing does not convey how excitable a person i am *(i do still have an old straw linked if u wanna read that thoug.. sighs dramatically)*
+hi, i'm miley (but i also go by ethan)! i prefer people interacting w/ me rather than judging based on my writing style, cause i do my best to match vibes. my writing does not convey how excitable a person i am *(i do still have prns.cc linked if u wanna read that thoug.. sighs dramatically)*
 
 
 dx. severe social & general anxiety, audhd, and working on bpd.
