@@ -1,10 +1,4 @@
-hi, i'm miley (but i also go by ethan)! i prefer people interacting w/ me rather than judging based on my writing style, cause i do my best to match vibes. my writing does not convey how excitable a person i am *(i do still have prns.cc linked if u wanna read that thoug.. sighs dramatically)*
-
-
-dx. severe social & general anxiety, audhd, and working on bpd. i suffer quite extreme mood and opinion swings/changes! nothing personal! i also dont usually follow people on socials. *doesnt mean i dont like u if i unfollow!!!* my opinions are not binded to that haha 
-
-
-*(but yeah, i don't like fictionkin or most otherkin. if u interact with me regardless of that then i will point and laugh, youre not "standing up for urselves" like you think you are lmfao)*
+diagnosed w/ several things, please be patient with me. unintentionally rude, i don't mean to hurt people and it doesn't mean i don't like you. i forget tone tags a lot, though usually need them myself.
 
 
 ..usually in these skinz if you do wanna chat..
