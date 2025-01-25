@@ -4,7 +4,7 @@ hi, i'm miley (but i also go by ethan)! i prefer people interacting w/ me rather
 dx. severe social & general anxiety, audhd, and working on bpd. i suffer quite extreme mood and opinion swings/changes! nothing personal! i also dont usually follow people on socials. *doesnt mean i dont like u if i unfollow!!!* my opinions are not binded to that haha 
 
 
-*(and uhm, quick note!! im VERY wary of kinnies/fictionkin. not an outright dni like it was before, im just super cautious around u guys)*
+*(but yeah, i don't like fictionkin or most otherkin. cope.)*
 
 
 ..usually in these skinz if you do wanna chat..
