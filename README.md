@@ -1,14 +1,7 @@
-diagnosed w/ several things, please be patient with me. unintentionally rude, i don't mean to hurt people and it doesn't mean i don't like you. i forget tone tags a lot, though usually need them myself.
+before you interact / byi , always iwc:
 
+i'm extremely self destructive. i say things i don't mean as a way to self isolate, in hopes people won't get too close to me. i've been hurt before and am extremely wary of people now, so for a multitude of reasons i probably will not get very close.
 
-..usually in these skinz if you do wanna chat..
+diagnosed autism, adhd, severe social anxiety & general anxiety- working on treating a personality disorder i don't wish to disclose. these greatly affect my behaviour, please keep this in mind and be patient when you can. i'm bad at social cues, and will freeze up if surrounded or approached by too many people (usually more than three).. but if i'm approaching you in whispers, it means i'm comfortable enough to chat. very non-confrontational otherwise, i unfortunately won't tell someone when or if i'm uncomfortable (i also dont say things as threats or to be mean i swear, im just bad at adding tone tags sometimes).
 
-![pony-town-the man who sold the world-trot-padded-4x](https://github.com/user-attachments/assets/f4eae41f-5c55-484a-b4f1-f0a9552a16e8)
-![pony-town-stressed -- dniup-trot-padded-4x](https://github.com/user-attachments/assets/b78ad28d-f0e3-41b2-824a-f5d2a9978eca)
-![pony-town-crazy_ yes, that is my name!-trot-padded-4x](https://github.com/user-attachments/assets/89e8bf5b-e31e-4ca9-8fad-b9c274f009bd)
-
-
-..or using either of my personas.
-
-![pony-town-ethan ( me ^_^ )-trot-padded-toy348-4x](https://github.com/user-attachments/assets/ffe69917-8818-4e05-ad12-e2f78aea3f15)
-![pony-town-snoooork mimimimi-trot-padded-4x](https://github.com/user-attachments/assets/5f4ea5e3-5e49-4cf4-bd58-23f9a43934c2)
+frequently semi or non-verbal.
