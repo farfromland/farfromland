@@ -8,4 +8,4 @@ uhh i dont have an outright dni (they dont really work anyway) but. there are pl
 
 ***thin ice/wary of;*** phighting/regretevator , mouthwashing , pressure , flood escape 2 , basically all roblox fandoms , anyone >15 (under 15)
 
-***i will hide;*** most of tf2 fandom (you guys are yikes) , >18 hazbin/helluva fans ,  "fictionkin/kinnies/alterhumans" , if you make kms/kys/sh jokes , and/or if u are otherwise weird or fit the basic criteria obviously lol
+***i will likely hide;*** most of tf2 fandom (you guys are yikes, unless ive interacted first) , >18 hazbin/helluva fans ,  "fictionkin/kinnies/alterhumans" , if you make kms/kys/sh jokes , and/or if u are otherwise weird or fit the basic criteria obviously lol
