@@ -6,4 +6,4 @@ that combine elite cosplayer u've probably seen before
 
 uhh i dont have an outright dni (they dont really work anyway) but. there are plenty of people im either wary of or dislike ya
 
-i dont usually interact with anyon >16 (under 16) uhh. it makes me quite uncomfy,, apologies
+i dont usually interact with anyon >16 (under 16) uhh. it makes me quite uncomfy,, apologies ^^'
