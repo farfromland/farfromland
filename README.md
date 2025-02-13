@@ -1,6 +1,6 @@
-that combine elite cosplayer u've probably seen b4
+that combine elite cosplayer u've probably seen before
 
- c+h is alwayz cool no matter my status ion bite
+ c+h is alwayz cool no matter my status! i promisew i dont bite LOL
 
 -
 
