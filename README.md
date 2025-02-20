@@ -1,4 +1,4 @@
-that combine elite cosplayer u've probably seen before
+that combine elite cosplayer u've probably seen before (MASSIVE entropy zero fan, especially the 2nd game)
 
  c+h is alwayz cool no matter my status! i promisew i dont bite LOL
 
