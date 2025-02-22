@@ -8,4 +8,7 @@ uhh i dont have an outright dni (they dont really work anyway) but. there are pl
 
 i dont usually interact with many strangers >16 (under 16) uhh. it makes me quite uncomfy,, apologies ^^'
 
-if ive upset you _pls tell me!!!_ not forced at all, but u feeling bad makes me feel bad too. if i can do anyything to help/fix things, please do tell!!
+-
+
+
+tf2 area on the safe server _DO NOT APPROACH ME UNLESS I INTERACT FIRST!!!!_ the majority of you are incredibly inappropriate and gross, and need to be rethinking what you say in public servers. much of that is totally unacceptable, _especially so_ considering you are minors. i don't take kindly to any of you people.
