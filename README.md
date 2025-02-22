@@ -11,4 +11,4 @@ i dont usually interact with many strangers >16 (under 16) uhh. it makes me quit
 -
 
 
-tf2 area on the safe server _DO NOT APPROACH ME UNLESS I INTERACT FIRST!!!!_ the majority of you are incredibly inappropriate and gross, and need to be rethinking what you say in public spaces, even more so as other KIDS are around. much of that is totally unacceptable, _especially so_ considering you are minors. i don't take kindly to any of you people. save it for your irl friends.
+tf2 area on the safe server _DO NOT APPROACH ME UNLESS I INTERACT FIRST!!!!_ the majority of you are incredibly inappropriate and gross, and need to be rethinking what you say in public spaces, even more so as other KIDS are around. much of that is totally unacceptable, _especially_ considering you are minors saying these things. i don't take kindly to any of you people. save it for your irl friends at best.
