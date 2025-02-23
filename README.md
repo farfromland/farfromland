@@ -1,14 +1,9 @@
 that combine elite cosplayer u've probably seen before (MASSIVE entropy zero fan, especially the 2nd game)
 
- c+h is alwayz cool no matter my status! i promisew i dont bite LOL
-
 -
 
-uhh i dont have an outright dni (they dont really work anyway) but. there are plenty of people im either wary of or dislike ya
+very likely to be callous and distant when talking at first. i don't like the majority of people in ponytown, *especially* in fandom areas, which leads me to being extremely wary around others. i'm also diagnosed with severe social anxiety, so please keep in mind that it will impact how i talk and act.
 
-i dont usually interact with many strangers >16 (under 16) uhh. it makes me quite uncomfy,, apologies ^^'
+despite all of that, you can usually tell when i've warmed up, as i'm a very different person from how i often present myself (me yapping a ton around you is a big sign i'm comfortable).
 
--
-
-
-tf2 area on the safe server _DO NOT APPROACH ME UNLESS I INTERACT FIRST!!!!_ the majority of you are incredibly inappropriate and gross, and need to be rethinking what you say in public spaces, even more so as other KIDS are around. much of that is totally unacceptable, _especially_ considering you are minors saying these things. i don't take kindly to any of you people. save it for your irl friends at best.
+i apologize in advance if i accidentally talk over you- it's something i'm working on, and a part of my other conditions. i don't mean to be rude.
