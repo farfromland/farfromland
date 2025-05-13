@@ -1,3 +1,5 @@
+I LIKE BEING FRENDS WITH PEOPLE!!! feel free 2 friend me whenever!!!!
+
 that one combine elite cosplayer you've probably seen before.. formerly beneaththeruins, if u know me from the phighting/roblox/mandela catalogue area..!
 
 i often wont approach people on my own unless im crowning, sorry. i get uncomfortable very easily & feel the need to rewrite my bios/pages a lot to explain myself; generally know that i dont do a good job at portraying my personality. very different in person than in writing! also i have no real dni. if i dont wanna talk i wont
