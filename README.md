@@ -8,3 +8,5 @@ while i am socially *anxious*, i'm not anti social. c+h is ALWAYS fine, and i wo
 
 read my [patreon](https://www.patreon.com/c/beneaththeruins/about)
  for detailed info, or check my links too i suppose...
+
+[azk me sumthing?](https://neospring.org/@beneaththeruins)
