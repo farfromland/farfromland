@@ -4,7 +4,9 @@ hi! i'm miley/ethan! feel free to also call me the name of the character i'm cos
 
 *she/her or any/all*, whatever you'd like. aroace and very loud about it
 
-***important***: i have severe social anxiety and a few other clinical diagnoses, so please be aware that this impacts how i interact with people!!! i'm awful at picking up on social cues, double meanings, and non-literal sentences, and i am VERY VERY AWKWARD. i talk a lot to fill the quiet, even when i'm not sure what to say - apologies in advance if i talk over you by accident, it's a habit i'm wokring on fixing! may go quiet sometimes, not your fault.
+***important***: i have severe social anxiety and a few other clinical diagnoses, so please be aware that this impacts how i interact with people!!! i'm awful at picking up on social cues, double meanings, and non-literal sentences, and i am VERY VERY AWKWARD. i talk a lot to fill the quiet, even when i'm not sure what to say - apologies in advance if i talk over you by accident, it's a habit i'm working on fixing! may go quiet sometimes, not your fault.
+
+VERY paranoid about people and friends i will worry that you hate me a lot yeah im working on it too
 
 no dni, if i dont wanna talk i wont! kinda sorta block freely
 
