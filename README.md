@@ -6,5 +6,7 @@ hi! i'm miley/ethan! feel free to also call me the name of the character i'm cos
 
 i have a few clinical diagnoses please be mindful of this. not always talkative but i love being friends with peopl!! if i suddenly go rlly quiet/dont havr a lot to say it isnt your fault ... also i dont have a dni!! btw!! if i dont wanna talk i wont!
 
+generally know i avoid people under 17 id rather not engage apologies
+
 read my [patreon](https://www.patreon.com/c/beneaththeruins/about)
- for detailed info, or check my links too i suppose...
+ for detailed info, or check my links too if you so wish ^-^
