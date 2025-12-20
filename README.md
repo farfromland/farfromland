@@ -2,4 +2,8 @@
 
 hey, hi! i'm miley. i go by quite a few names, but that's the one most people use for me.
 
+icelandic canadian. i'm not nearly fluent enough to be an authority though, my main languages are french and english lol
+
 any/all pronouns or she/her, whatever works.
+
+i like entropy zero, and you will usually see me cosplaying its characters in most games i play. aiden is me unfortunately 
