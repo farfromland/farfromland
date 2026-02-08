@@ -9,4 +9,4 @@ any/all pronouns or she/her, whatever works.
 
 i like entropy zero, and you will usually see me cosplaying its characters in most games i play. aiden is very me unfortunately (no im not a kinnie, stop asking /lh)
 
-i dont have a dni, or anything like it. if i dont wanna talk, i just wont
+i dont have a dni, or anything like it. if i dont wanna talk, i just wont!
