@@ -7,8 +7,8 @@ icelandic canadian! i'm not nearly fluent enough to be an authority though, my m
 
 any/all pronouns or she/her, whatever works.
 
-i like entropy zero, and you will usually see me cosplaying its characters in most games i play. aiden is very me unfortunately (no im not a kinnie, stop asking /lh)
+i like entropy zero, and you will usually see me cosplaying its characters in most games i play. aiden is very me unfortunately
 
-yes, i am an adult. my exact age im not comfortable giving, but im in the 18-21 range
+yes, i am an adult. my exact age i'm not comfortable giving, but im in the 18-21 range
 
-i dont have a dni, or anything like it. if i dont wanna talk, i just wont!
+i don't have a dni, or anything like it. if i don't wanna talk, i just won't!
