@@ -9,6 +9,6 @@ any/all pronouns or she/her, whatever works.
 
 i like entropy zero, and you will usually see me cosplaying its characters in most games i play. aiden is very me unfortunately
 
-yes, i am an adult! my exact age i'm not comfortable giving, but i'm in the 18-21 range
+yes, **i am an adult!** my exact age i'm not comfortable giving, but i'm in the 18-21 range. don't be weird about this please and thank you
 
 i don't have a dni, or anything like it. if i don't wanna talk, i just won't!
