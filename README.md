@@ -1,6 +1,6 @@
 <img width="1477" height="231" alt="image" src="https://github.com/user-attachments/assets/37e043f1-b71b-4f69-a28a-5cc1f7be23e6" />
 
-hiya! i'm miley/ethan! this is my account for ponytown links. used to be called @/beneaththeruins before i changed names.
+hiya! i'm miley/ethan! u can also call me aiden or the names of my cosplays if u want.. this is my account for ponytown links. used to be called @/beneaththeruins before i changed names.
 any/all pronouns, but i prefer to use masculine terms when referring to myself. 
 
 i am an ADULT!! i tend to only friend and follow people who are my age or older (unless we were already friends before i became 18). sorry
