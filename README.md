@@ -5,6 +5,8 @@ any/all pronouns, but i prefer to use masculine terms when referring to myself.
 
 i am an ADULT!! i tend to only friend and follow people who are my age or older (unless we were already friends before i became 18). sorry
 
+currently has a MASSIVE fixation on project hail mary for. the obvious reasons. i mean look at my profile come on
+
 <details>
   <summary><img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/e1bef882-db01-4f68-993a-28e8147494c4" />
   ⊹ ࣪ ˖ BYI/ABOUT ME</summary>
