@@ -16,7 +16,7 @@ currently has a MASSIVE fixation on project hail mary for. the obvious reasons. 
 <details>
   <summary><img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/d22f742d-4265-4639-80f6-f875531273da" />
   ⊹ ࣪ ˖ DNI</summary>
-  i don't have a dni! i just won't talk if i don't want to. i try not to block people, even if they intentionally push my buttons. there are some fandoms i'm uncomfortable with and certain topics i don't like, but blocking is my last resort.
+  i don't have a dni! i just won't talk if i don't want to. i try not to block people, even if they intentionally push my buttons. there are some fandoms i'm uncomfortable with and certain topics i don't like, but blocking is my last resort. side note, to any fictionkin.. i don't like your community. i've been harassed over it before, so i'll say this again: my disbelief in the concept does not give you the right to harass me, nor me you. i won't be a dick to you if you aren't to me. respect my boundaries, and i will respect yours. i have not and will never go out of my way to hurt people; so please, just leave me alone.
 </details>
 
 <details>
