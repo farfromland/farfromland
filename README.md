@@ -10,7 +10,7 @@ currently has a MASSIVE fixation on project hail mary for. the obvious reasons. 
 <details>
   <summary><img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/e1bef882-db01-4f68-993a-28e8147494c4" />
   ⊹ ࣪ ˖ BYI/ABOUT ME</summary>
-  i'm (diagnosed, yes) neurodivergent and extremely socially anxious! my meds make me tired most of the day. expect me to struggle with understanding tone and/or sarcasm, those are my biggest weak spots. i'm very talkative when you get to know me (to a fault lol), but sometimes i don't know when to stop; if i suddenly go quiet, it's probably because i don't wanna talk over you. feel free to give me a nudge to stop if you're uncomfortable, i won't mind! :)
+  neurodivergent (audhd) & severely socially anxious, bad at understanding social ques and staying friends; i tend to not reach out first. always super tired due 2 meds. i struggle to get sarcasm and jokes, and will come off as weird or rude sometimes. working on that ;(
 </details>
 
 <details>
@@ -27,5 +27,5 @@ currently has a MASSIVE fixation on project hail mary for. the obvious reasons. 
 
 <details>
   <summary>other, more general intrests :)</summary>
-  art/drawing & animation, warplanes & cargo/passenger planes lol, the furry fandom (even tho i'm not part of it i'm still curious about its history), aeromorphs, game development, modelling, blockbench, the source engine & map making, most genres of music, biology (especially marine animals), boats, the arctic, editing & filmmaking, science in general
+  art/drawing & animation, warplanes & cargo/passenger planes lol, the furry fandom (even tho i'm not part of it i'm still curious about its history), aeromorphs, game development, modelling, blockbench, the source engine & map making, most genres of music, biology (especially marine animals), boats, the arctic, editing & filmmaking, science in general, SPAAAACE
 </details>
