@@ -1,7 +1,9 @@
 <img width="1477" height="231" alt="image" src="https://github.com/user-attachments/assets/37e043f1-b71b-4f69-a28a-5cc1f7be23e6" />
 
 hiya! i'm miley/ethan! u can also call me aiden or the names of my cosplays if u want.. this is my account for ponytown links. used to be called @/beneaththeruins before i changed names.
-any/all pronouns, but i prefer to use masculine terms when referring to myself. 
+any/all pronouns, but i prefer to use masculine terms when referring to myself.
+
+my public chat is disabled most of the time, if you really want me to see something please whisper me :)
 
 i am an ADULT!! i tend to only friend and follow people who are my age or older (unless we were already friends before i became 18). sorry
 
@@ -10,7 +12,7 @@ currently has a MASSIVE fixation on project hail mary for. the obvious reasons. 
 <details>
   <summary><img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/e1bef882-db01-4f68-993a-28e8147494c4" />
   ⊹ ࣪ ˖ BYI/ABOUT ME</summary>
-  neurodivergent (audhd) & severely socially anxious, bad at understanding social ques and staying friends; i tend to not reach out first. always super tired due 2 meds. i struggle to get sarcasm and jokes, and will come off as weird or rude sometimes. working on that ;(
+  neurodivergent & severely socially anxious, bad at understanding social ques and staying friends; i tend to not reach out first. always super tired due 2 meds. i struggle to get sarcasm and jokes, and will come off as weird or rude sometimes. working on that, sorry ;( .. i dont consider myself part of fandoms or communities anymore, please dont group me into them
 </details>
 
 <details>
@@ -27,5 +29,5 @@ currently has a MASSIVE fixation on project hail mary for. the obvious reasons. 
 
 <details>
   <summary>other, more general intrests :)</summary>
-  art/drawing & animation, warplanes & cargo/passenger planes lol, the furry fandom (even tho i'm not part of it i'm still curious about its history), aeromorphs, game development, modelling, blockbench, the source engine & map making, most genres of music, biology (especially marine animals), boats, the arctic, editing & filmmaking, science in general, SPAAAACE
+  art/drawing & animation, warplanes & cargo/passenger planes lol, the furry fandom (even though i'm not part of it i'm still curious about its history), aeromorphs, game development, modelling, blockbench, the source engine & map making, most genres of music, biology (especially marine animals), boats, the arctic, editing & filmmaking, science in general, SPAAAACE (duhh)
 </details>
