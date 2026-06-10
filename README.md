@@ -12,7 +12,7 @@ currently has a MASSIVE fixation on project hail mary for. the obvious reasons. 
 <details>
   <summary><img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/e1bef882-db01-4f68-993a-28e8147494c4" />
   ⊹ ࣪ ˖ BYI/ABOUT ME</summary>
-  neurodivergent & severely socially anxious, bad at understanding social ques and staying friends; i tend to not reach out first. always super tired due 2 meds. i struggle to get sarcasm and jokes, and will come off as weird or rude sometimes. working on that, sorry ;( .. i dont consider myself part of fandoms or communities anymore, please dont group me into them
+  neurodivergent & severely socially anxious, bad at understanding social ques and staying friends; i tend to not reach out first. i swear i like you im just kinda dry!!! always super tired due 2 meds. i struggle to get sarcasm and jokes, and will come off as weird or rude sometimes. working on that, sorry ;( .. i dont consider myself part of fandoms or communities anymore, please dont group me into them
 </details>
 
 <details>
