@@ -3,7 +3,7 @@
 hiya! i'm miley/ethan! u can also call me aiden or the names of my cosplays if u want.. this is my account for ponytown links. used to be called @/beneaththeruins before i changed names.
 any/all pronouns, but i prefer to use masculine terms when referring to myself.
 
-my public chat is disabled most of the time, if you really want me to see something please whisper me :)
+my public chat is disabled most of the time, if you really want me to see something please whisper me!! also; feel free to sit with me, hide behind me, whatever!! *i love when people sit with me!!!* you dont have to ask! ^v^
 
 i am an ADULT!! i tend to only friend and follow people who are my age or older (unless we were already friends before i became 18). sorry
 
