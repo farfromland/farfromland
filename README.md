@@ -24,10 +24,10 @@ currently has a MASSIVE fixation on project hail mary for. the obvious reasons. 
 <details>
   <summary><img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/effd289f-043d-4a2f-9319-c2697babc936" />
   ⊹ ࣪ ˖ MEDIA INTERESTS (IF YOU WANT THEM)</summary>
-    half-life series and hlvrai, entropy zero, sourceworld, swelter, source mods in general (especially half-life: 2 mods), tadc/the amazing digital citcus & a couple other glitch shows, fnaf, terraria, tmodloader stuff (calamity mod, wrath of the gods, etc), top gun, alien and aliens, alien: isolation and blackout (yes the mobile game), portal series and anything else valve related really, httyd/how to train your dragon, source filmmaker, the scp foundation, horror movies, poppy playtime, roblox, sonic, call of duty, warhawk, battlefield 3.. yadda yadda you can probably guess what else
+    half-life series and hlvrai, entropy zero, sourceworld, swelter, source mods in general (especially half-life: 2 mods), tadc/the amazing digital citcus & a couple other glitch shows, fnaf, terraria, tmodloader stuff (support wotg and the former devs of calamity!), top gun, alien and aliens, alien: isolation and blackout (yes the mobile game), portal series and anything else valve related really, httyd/how to train your dragon, source filmmaker, the scp foundation, horror movies, poppy playtime, roblox, sonic, call of duty, warhawk, battlefield 3.. yadda yadda you can probably guess what else
 </details>
 
 <details>
   <summary>other, more general intrests :)</summary>
-  art/drawing & animation, warplanes & cargo/passenger planes lol, the furry fandom (even though i'm not part of it i'm still curious about its history), aeromorphs, game development, modelling, blockbench, the source engine & map making, most genres of music, biology (especially marine animals), boats, the arctic, editing & filmmaking, science in general, SPAAAACE (duhh)
+  art/drawing & animation, warplanes & cargo/passenger planes lol, the furry fandom (even though i'm not part of it i'm still curious about its history), aeromorphs, game development, modelling, blockbench, the source engine & map making, most genres of music, biology (especially marine animals), boats, the arctic, editing & filmmaking, science in general, SPAAAACE (duhh), roller coasters & their creation, engineering (primarily of creation and maintenance of transport vehicles like planes or ride manufacturing)
 </details>
