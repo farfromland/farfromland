@@ -1,6 +1,6 @@
 <img width="1477" height="231" alt="image" src="https://github.com/user-attachments/assets/37e043f1-b71b-4f69-a28a-5cc1f7be23e6" />
 
-hiya! i'm miley/ethan! u can also call me aiden or the names of my cosplays if u want.. this is my account for ponytown links. used to be called @/beneaththeruins before i changed names.
+hiya! i'm miley/ethan! u can also call me gamma or the names of my other cosplays if u want.. this is my account for ponytown links. used to be called @/beneaththeruins before i changed names.
 any/all pronouns, but i prefer to use masculine terms when referring to myself.
 
 my public chat is disabled most of the time, if you really want me to see something please whisper me!! also; feel free to sit with me, hide behind me, whatever!! *i love when people sit with me!!!* you dont have to ask! ^v^
