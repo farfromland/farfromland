@@ -1,6 +1,6 @@
 <img width="1477" height="231" alt="image" src="https://github.com/user-attachments/assets/37e043f1-b71b-4f69-a28a-5cc1f7be23e6" />
 
-hiya! i'm miley/ethan! u can also call me gamma or the names of my other cosplays if u want.. this is my account for ponytown links. used to be called @/beneaththeruins before i changed names.
+hiya! i'm miley/ethan! feel free to also call me the names of my cosplays or my username.. this is my account for ponytown links. used to be called @/beneaththeruins before i changed names.
 any/all pronouns, but i prefer to use masculine terms when referring to myself.
 
 my public chat is disabled most of the time, if you really want me to see something please whisper me!! also; feel free to sit with me, hide behind me, whatever!! *i love when people sit with me!!!* you dont have to ask! ^v^
@@ -24,10 +24,10 @@ currently has a MASSIVE fixation on project hail mary for. the obvious reasons. 
 <details>
   <summary><img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/effd289f-043d-4a2f-9319-c2697babc936" />
   ⊹ ࣪ ˖ MEDIA INTERESTS (IF YOU WANT THEM)</summary>
-    half-life series and hlvrai, entropy zero, sourceworld, swelter, source mods in general (especially half-life: 2 mods), tadc/the amazing digital citcus & a couple other glitch shows, fnaf, terraria, tmodloader stuff (support wotg and the former devs of calamity!), top gun, alien and aliens, alien: isolation and blackout (yes the mobile game), portal series and anything else valve related really, httyd/how to train your dragon, source filmmaker, the scp foundation, horror movies, poppy playtime, roblox, sonic, call of duty, warhawk, battlefield 3.. yadda yadda you can probably guess what else
+    half-life series and hlvrai, project zomboid, entropy zero, sourceworld, swelter, source mods in general (especially half-life: 2 mods), tadc/the amazing digital citcus & a couple other glitch shows, fnaf, terraria, tmodloader stuff (support wotg and the former devs of calamity!), top gun, alien and aliens, alien: isolation and blackout (yes the mobile game), portal series and anything else valve related really, httyd/how to train your dragon, source filmmaker, the scp foundation, horror movies, poppy playtime, roblox, sonic, call of duty, warhawk, battlefield 3.. yadda yadda you can probably guess what else
 </details>
 
 <details>
   <summary>other, more general intrests :)</summary>
-  art/drawing & animation, warplanes & cargo/passenger planes lol, the furry fandom (even though i'm not part of it i'm still curious about its history), aeromorphs, game development, modelling, blockbench, the source engine & map making, most genres of music, biology (especially marine animals), boats, the arctic, editing & filmmaking, science in general, SPAAAACE (duhh), roller coasters & their creation, engineering (primarily of creation and maintenance of transport vehicles like planes or ride manufacturing)
+  art/drawing & animation, warplanes & cargo/passenger planes lol, the furry fandom (even though i'm not part of it i'm still curious about its history), aeromorphs, game development, modelling, blockbench, the source engine & map making, most genres of music, biology (especially marine animals), boats, the arctic, editing & filmmaking, science in general, SPAAAACE (duhh), roller coasters & their creation, engineering (primarily of creation and maintenance of transport vehicles like planes or entertainment ride manufacturing)
 </details>
